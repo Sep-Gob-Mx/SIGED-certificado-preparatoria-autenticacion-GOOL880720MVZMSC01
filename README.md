@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOOL880720MVZMSC01
+GOOL880720MVZMSC01
